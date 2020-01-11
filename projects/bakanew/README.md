@@ -1,1 +1,0 @@
-"#Wes Bakane, bakanew"
